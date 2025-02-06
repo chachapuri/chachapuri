@@ -14,5 +14,5 @@ I'm a **Data Analyst** passionate about uncovering insights from data to drive b
 - **Analytics:** Retention analysis, conversion rate analysis, cohort analysis  
 
 ### 📫 Let's Connect!  
-🔗 [LinkedIn](#https://www.linkedin.com/in/miliausha-melnikova-a453a3267/) | 💬 [Telegram](#https://t.me/violetberrry) | ✉️ melnikovamiliausha@gmail.com  
+🔗 [LinkedIn](https://www.linkedin.com/in/miliausha-melnikova-a453a3267/) | 💬 [Telegram](https://t.me/violetberrry) | ✉️ melnikovamiliausha@gmail.com  
 📍 Open to new opportunities in data analytics!  
